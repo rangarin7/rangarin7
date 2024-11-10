@@ -2,7 +2,7 @@
 - 👀 I’m interested in DevOps as career
 - 🌱 I’m currently learning Cloud and DevOps
 - 💞️ I’m looking to collaborate on Searching Job
-- 📫 How to reach me "rangarinikhil59@gmail.com
+- 📫 How to reach me "rangarinikhil59@gmail.com"
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
